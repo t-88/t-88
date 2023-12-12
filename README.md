@@ -4,7 +4,7 @@ I'm t-88, and this is where I store my projects and share my code. I enjoy softw
 
 If you have any interesting ideas or need a team member, feel free to ask me.
 
-## what am doing
+## What am i Doing Now?
 learning...  
         
 ## Future Projects
